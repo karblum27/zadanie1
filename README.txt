@@ -1,0 +1,1 @@
+krotki opis projektu
